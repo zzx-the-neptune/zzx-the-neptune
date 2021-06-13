@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @zzx-the-neptune
+- 👀 I’m interested in websites and minecraft
+- and i nut every one >:)
